@@ -1,3 +1,3 @@
 # winterishere
 
-# Let's hope it ends soon
+# But summer always comes again
